@@ -1,4 +1,4 @@
-make 5 line poem about murray  
+##Murray Poem  
 how far is too far?  
 what was once a projection on a wall can now take you into a new reality  
 now humans can't tell what's real from the internet  
@@ -8,4 +8,4 @@ how far is too far? is it until we have lost sense of reality and there's no goi
 [The DARK Side Of VIRTUAL REALITY](https://youtu.be/EEzwulP8Me8)  
 ![VR](https://www.ediiie.com/blog/assets/admin/uploads/virtual-reality-for-tourism-marketing-strategy.jpg)
 
-
+![The zoopraxiscope](https://thezoopraxiscope.files.wordpress.com/2017/01/zoopraxiscope-in-action-e1515787280171.jpg)
