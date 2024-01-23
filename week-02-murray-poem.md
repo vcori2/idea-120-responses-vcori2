@@ -7,6 +7,6 @@ how far is too far? is it until we have lost sense of reality and there's no goi
 
 [The DARK Side Of VIRTUAL REALITY](https://youtu.be/EEzwulP8Me8)  
 
-![VR](https://www.ediiie.com/blog/assets/admin/uploads/virtual-reality-for-tourism-marketing-strategy.jpg)
+![Virtual Reality](https://www.ediiie.com/blog/assets/admin/uploads/virtual-reality-for-tourism-marketing-strategy.jpg "virtual reality")
 
-![The zoopraxiscope](https://thezoopraxiscope.files.wordpress.com/2017/01/zoopraxiscope-in-action-e1515787280171.jpg)
+![The zoopraxiscope](https://thezoopraxiscope.files.wordpress.com/2017/01/zoopraxiscope-in-action-e1515787280171.jpg "The zoopraxiscope")
