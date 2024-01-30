@@ -3,4 +3,20 @@ Some contemporary tools that could be used to create art that would be considere
   
   I am not sure if there is an example of this in the Rhizome anthology. I think a lot of the art in the Rhizome anthology has to do with websites or visual art. From what I've gathered about what a Gesamtkunstwerk is, it’s the use of a lot of art, like music, dance, theater, etc., to create one grand work of art. Today, the concept of Gesamtkunstwerk can be seen a little in movie theaters that now create a new experience for people. They can make the seats move, create wind or rain, and use loud surround sound systems to make a person feel like they are really a part of the movie they are watching.
 
-<-- not sure what to put here lol -->
+<!-- not sure what to put here lol -->
+
+               |))    |))
+ .             |  )) /   ))
+ \\   ^ ^      |    /      ))
+  \\(((  )))   |   /        ))
+   / G    )))  |  /        ))
+  |o  _)   ))) | /       )))
+   --' |     ))`/      )))
+    ___|              )))
+   / __\             ))))`()))
+  /\@   /             `(())))
+  \/   /  /`_______/\   \  ))))
+       | |          \ \  |  )))
+       | |           | | |   )))
+       |_@           |_|_@    ))
+      /_/           /_/_/
