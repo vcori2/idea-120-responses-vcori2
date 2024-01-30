@@ -6,7 +6,7 @@ Some contemporary tools that could be used to create art that would be considere
 <!-- not sure what to put here lol -->
 :grin:
 
-<!--       .--.   _,
+<!--      .--.   _,
   .--;    \ /(_
  /    '.   |   '-._    . ' .
 |       \  \    ,-.)  -= * =-
@@ -27,4 +27,4 @@ jgs  ).'  )/|      \
                       \ \ `'-._\
                        \ |
                         \ )
-                         \_\ -->
+                         \_\-->
