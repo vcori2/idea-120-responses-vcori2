@@ -1,4 +1,4 @@
 An example of hot media could be a science book since it provides all the information a person needs in it, it also only requires to be read.
-  ![Science Book](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftimberdoodle.com%2Fproducts%2Fbuilding-blocks-of-science-5&psig=AOvVaw39I9J3zRQ_xtChSuMi40R6&ust=1707256732117000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqGAoTCJD_w4qZlYQDFQAAAAAdAAAAABCcAQ)
+  ![Science Book](https://cdn.shopify.com/s/files/1/1994/4551/products/366-150_BBS5_textbook03.jpg?v=1658175598)
   An example of cold media is a science experiment because they usually have a set of simple directions, they are hands-on, and they require a person to think about how to conduct the experiment.
-  ![Science Experiment](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.care.com%2Fc%2Fvolcano-experiments-for-kids%2F&psig=AOvVaw0G0ZEvjOJDNMGOyKHuhFWU&ust=1707257263238000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJDYx4eblYQDFQAAAAAdAAAAABAS)
+  ![Science Experiment](https://www.care.com/c/wp-content/uploads/sites/2/2023/10/GettyImages-1008621274.jpg.optimal.jpg)
